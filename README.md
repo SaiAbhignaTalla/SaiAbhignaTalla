@@ -1,4 +1,4 @@
-# 👋 Hi there! I'm [Abhigna]  
+# 👋 Hi there! I'm Abhigna
 ### Data Analyst | Data Visualization Enthusiast | Problem Solver  
 
 ## About Me  
